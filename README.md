@@ -1,1 +1,1 @@
-Hscprojects.com is a website that talks about HSC projects, MBA Projects, and CBSE Projects. A one-stop location for all your project needs. Blackbook projects are also available only on https://hscprojects.com
+Hscprojects.com is a website that talks about HSC projects,<a href="https://hscprojects.com/category/mba-projects/">MBA Projects</a> , and CBSE Projects. A one-stop location for all your project needs. Blackbook projects are also available only on hscprojects.com
